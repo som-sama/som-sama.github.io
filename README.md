@@ -1,1 +1,0 @@
-# som-sama.github.io
